@@ -1,0 +1,5 @@
+Born and bred suspiciously close to London (but not close enough to impress anyone)—where the streets are paved with pigeon feathers, baked beans are legally classified as breakfast, and poetry is only tolerated in toilet graffiti—our author spent formative years caring deeply for a gerbil named Gerald, who tragically never returned that affection.
+
+In this absurd, unsettling, and deliciously odd collection of tales (and some poetry thrown in to convince you it’s proper literature), expect encounters with the weird, the scary, and the bizarrely hilarious—all told by a questionable creature who inexplicably found himself living on a rock. Between periodic episodes of trying to become seriously serious and making dramatic attempts to be ever so artistic (usually involving turtlenecks and existential sighing), he occasionally produces something worth reading. Prepare to laugh, shiver, and occasionally wonder if someone ought to check on the author—or at least confiscate his beret.
+
+No gerbils were harmed in the making of this book. Gerald is currently missing, presumed writing angst-ridden poetry under a floorboard, probably wearing a tiny black scarf.
